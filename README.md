@@ -4,4 +4,4 @@
 
 ### Cola loca pega de locura
 
-### ya dena las drogas
+### ya deja las drogas
